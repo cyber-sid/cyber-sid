@@ -12,4 +12,4 @@ I am good at. I love to learn and build something new, productive, innovative an
 - 👯 I’m looking forward to collaborate on open source projects.
 - ✔ Ask me about anything, I am happy to help, only if the ball is in my court!😉<br>
 - Outside tech, 📖 I love to read novels, 🎵 listen to music, 🌴 explore nature outdoors and 📷 click pictures .
-- 📫 Reach out to me at: <a href="siddharth1910036@akgec.ac.in">siddharth1910036@akgec.ac.in</a>
+- 📫 Reach out to me at: <a href="93siddhartha@gmail.com">93siddhartha@gmail.com</a>
